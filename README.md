@@ -1,4 +1,4 @@
-Universidad Nacional de Trujillo
+Universidad Nacional de Trujillo
 Facultad de Ingeniería
 Escuela Profesional de Ingeniería Mecatrónica
 Programación I
