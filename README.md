@@ -13,7 +13,7 @@ Grupo N°6
 
 Integrantes:
 
--ALVAREZ SANCHES, Arturo Estefano
+-ALVAREZ SANCHEZ, Arturo Estefano
 
 -GUZMAN CAMPOS, Claudio
 
